@@ -7,6 +7,8 @@ Ask the following question, to one participant at a time: "If you were able to t
 * Samir - To the Past
 * William - Fututre
 * Kevin - Future
+* Jayne - to the past
+
 - If backward, to which time period? Why?
 * Roman - I would go to the Future
 * Samir - I would go to different important historical periods.
@@ -17,8 +19,11 @@ Ask the following question, to one participant at a time: "If you were able to t
 * Samir - Isaac Newton
 * William - Einstein
 * Kevin - Galileo
+* Jayne - back to when my Grandma was young, so I could see her working as a Midwife.
+
 - Would you just want to visit and come back, or would you stay?"
 * Roman - Round Trip
 * Samir - Round trip 
 * William - Round Trip
 * Kevin - Round Trip
+* Jayne - Depends on whether I enjoy it :D
