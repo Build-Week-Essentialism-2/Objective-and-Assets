@@ -14,6 +14,8 @@ Ask the following question, to one participant at a time: "If you were able to t
 * Samir - I would go to different important historical periods.
 * William - Renaissance for the music
 * Kevin - Future about 200 years, to see how humans have fared
+* Jayne - I really want to see my grandparents when they were young.
+
 - If there was a person you could go back in time and meet, who would it be, and why?
 * Roman - Tesla
 * Samir - Isaac Newton
